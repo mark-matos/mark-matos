@@ -8,7 +8,7 @@
 
 📫 You can reach me at my email mark.matos2294@gmail.com or my LinkedIn https://www.linkedin.com/in/markmatos2/. I'm always open to discussions, networking, and sharing insights with fellow cybersecurity enthusiasts.
 
-⚡ Fun fact: When not immersed in the world of cybersecurity, you'll find me hiking/camping in the mountains or in Greece with my family.
+🇬🇷 Fun fact: When not immersed in the world of cybersecurity, you'll find me hiking/camping in the mountains or in Greece with my family.
 
 Let's connect and build a more secure digital future together! 🛡️💻
 
